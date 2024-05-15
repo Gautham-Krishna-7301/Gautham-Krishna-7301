@@ -1,2 +1,0 @@
-- 👋 Hi, I’m @Gautham-Krishna
-- 😄 Pronouns: He/Him
